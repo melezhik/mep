@@ -44,3 +44,10 @@ horny, callous, corny
 
 * "Zarro Boogs found." Bugzilla is like an old uncle who tells the same corny joke every time you see him.
 * it sounds corny, but as soon as I saw her I knew she was the one
+
+
+# throw a party
+
+организовать вечеринку
+
+Alexey throws a party. You are all invited. 
